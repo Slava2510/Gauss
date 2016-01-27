@@ -8,4 +8,4 @@
 Кислий Вячеслав 
 
 ###Screnshot
-![alt tag](https://docs.google.com/uc?authuser=0&id=0B6e_J8luQpfFZFBYSzgxOWItZE08&export=download)
+![alt tag](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=0B6e_J8luQpfFZFBYSzgxOWItZE0)
